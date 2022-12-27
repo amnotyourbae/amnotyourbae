@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @amnotyourbae
 - 👀 I’m interested in Tech, health and design.
+- Self-claim graphic designer, video editor, and human.
 - 🌱 I’m currently learning how to living life
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me hello@amnotyourbae.site
