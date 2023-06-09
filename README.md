@@ -3,7 +3,7 @@
 - Self-claim graphic designer, video editor, and human.
 - 🌱 I’m currently learning how to living life
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me hello@amnotyourbae.site
+- 📫 How to reach me hii.fizzi@gmail.com
 
 <!---
 amnotyourbae/amnotyourbae is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
